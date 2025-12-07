@@ -1,2 +1,0 @@
-# ComebackOfLegend
-Comeback Of Legend
